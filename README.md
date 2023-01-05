@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ANJANAMB1
 - 👀 I’m interested in exploring 
-- 🌱 I’m currently learning Mca
+- 🌱 I’m currently pursuing Mca
 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
